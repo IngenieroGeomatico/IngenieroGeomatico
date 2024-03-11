@@ -1,5 +1,5 @@
 - 👋 Holiii, soy @IngenieroGeomatico
-- 💞️ Titulado por la UPM y ahora en el CNIG :tada:
+- 💞️ Titulado por la UPM y ahora en el IGN-CNIG :tada:
 
 
 
